@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Joanna
+- 👀 I’m interested in Dungeons & Dragons DM'ing and network engineering
+- 🌱 I’m currently learning stuff
+- 💞️ I love otters 🦦
+- 📫 How to reach me: send me your owl
+- 😄 Pronouns: she/her or she/they
+- ⚡ Fun fact: never travel without your own pillow!
